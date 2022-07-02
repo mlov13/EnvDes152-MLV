@@ -29,3 +29,5 @@ Below are the links I am looking into https://www.sandiegoreader.com/news/2020/s
 Citations:
 <br>
 -Louise A. Mozingo, In office hours, Interview, April 2022 -Louise A Mozingo,Landscape Architecture 170: History and Lierature, March, 2022 -David Harvey, Abrief history of neoliberalism,Podcast, 2018 -David Harvey, The right to the city, 2008 -Jason Corburm, Urban place and health equity, Critical Issues and practices, 2017 -Urban Displacement Project, Mapping Displacement and Gentrification in Buenos Aires https://www.urbandisplacement.org/maps/buenos-aires-gentrification-and-displacement/ -Emily Marye Runnels, Gentrification on a Transnational Border:The story of San Diego and Tijuana, December 9, 2020, https://storymaps.arcgis.com/stories/5bc8ee4ea9ef49f7a5aee2713db5864e
+<br>
+![](BYEK2809.JPG)
